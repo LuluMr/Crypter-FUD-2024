@@ -13,4 +13,4 @@ Telegram: https://t.me/Crypter_FUD
 ▔▔▔▔▔▔╲▂▂▂▂▂▂▂▂▂▂▂▂
 <br>
 
-<img src="https://ibb.co/kJVb9XZ" alt="Trulli" width="339" height="150">
+<img src="https://i.postimg.cc/4yC4k2kq/crypter.jpg" alt="Trulli" width="339" height="150">
