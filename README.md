@@ -11,7 +11,7 @@
 Telegram: https://t.me/Crypter_FUD
 <br>
 <br>
-Download: https://we.tl/t-CAmpbuqAfT
+Download: https://t.me/Sir_Persy
 <br>
 ▔▔▔▔▔▔╲▂▂▂▂▂▂▂▂▂▂▂▂
 <br>
