@@ -1,7 +1,7 @@
 🟩 Crypter FUD (By Sir_Persy) 🟩
 <br>
 <br>
-╭━━╴🗣 Upgrade 20.03.2024
+╭━━╴🗣 Upgrade 26.03.2024
 <br>
 ├ This program will help you hide your virus from any antivirus.
 <br>
